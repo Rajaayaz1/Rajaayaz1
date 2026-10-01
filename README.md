@@ -108,7 +108,7 @@ conversion, debugging, and application testing.
 
 - 📧 Email: ayazraja412@gmail.com
 - 📍 Karachi, Pakistan
-- 💼 LinkedIn: [My LinkedIn Profile](www.linkedin.com/in/raja-ayaz-092615249)
+- 💼 LinkedIn: [Raja Ayaz Ahmed](https://www.linkedin.com/in/raja-ayaz-092615249/)
 
 ---
 
